@@ -1,6 +1,5 @@
-小伙伴们，大家好，这里是宋老狗的个人博客，新年快乐！
-
-![路飞](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1583406321290&di=c48f01a4960e7e69d06fc899435c55a1&imgtype=0&src=http%3A%2F%2Fcdn.duitang.com%2Fuploads%2Fitem%2F201408%2F12%2F20140812221930_ex2x8.thumb.700_0.gif)
+小伙伴们，大家好，这里是xgzhang95的个人博客！
+生命的意义有两种。能超越朽亡肉体的，一是我们传承给儿女的基因，繁衍生息，英语称为Procreate；二是我们创造的思想，载入史册，贡献于人类文明，英语称Create
 
 ## 千层饼理论
 
